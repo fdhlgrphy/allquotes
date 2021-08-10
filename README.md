@@ -1,2 +1,2 @@
 # allquotes
-Berbagai quotes yang saya kumpulkan
+[follow ig gw](https://instagram.com/fdhlgrphy)
